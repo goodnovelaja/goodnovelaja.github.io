@@ -1,1 +1,0 @@
-# goodnovelaja.github.io
